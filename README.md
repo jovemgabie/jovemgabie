@@ -8,4 +8,4 @@
 ## - ig: jovemgabie
 
 ![](https://media1.tenor.com/m/zbjsSDGBb-8AAAAd/t0jikaka.gif)
-![](https://tenor.com/pt-BR/view/itoshi-rin-blue-lock-gif-938339736612880040[])
+![](https://media1.tenor.com/m/DQWnBNdxvqgAAAAd/itoshi-rin-blue-lock.gif[])
